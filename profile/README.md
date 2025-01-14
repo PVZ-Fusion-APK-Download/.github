@@ -1,7 +1,7 @@
 # PVZ Fusion APK Download
 ## The Ultimate Fusion of Strategy and Fun, Now on Android!
 
-## [**Download PVZ Fusion APK**](https://pvzfusion.io/pvz-fusion-apk-download)
+## [**Download PVZ Fusion APK**](https://pvzfusion.io/pvz-fusion-apk-download?utm=github)
 
 ![](https://camo.githubusercontent.com/8ce6cd859cf39b670abfcf933b49c49c3051f8d6622fa9e26dc24a4c8068044e/68747470733a2f2f74727574682e626168616d75742e636f6d2e74772f7330312f3230323430392f33303732316634313435373239666665383665613134356263373533316630642e4a5047)
 
